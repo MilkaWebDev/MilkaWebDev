@@ -8,5 +8,5 @@
 
 - 📫 My email: milkadevelopment@gmail.com
 
-- ⚡ Fun fact: I love coding and learning new things :bowtie:
+- ⚡ Fun fact: I love coding and learning new stuff :bowtie:
 
